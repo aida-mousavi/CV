@@ -1,3 +1,3 @@
 # CV
 
-![Screenshot 2023-12-23 082740](https://github.com/aida-mousavi/CV/assets/115708698/90652603-eba1-448d-a56b-d948d34de9a1)
+![Screenshot 2023-12-23 082740](https://github.com/aida-mousavi/CV/blob/main/Screenshot%20from%202025-02-23%2017-04-03.png)
